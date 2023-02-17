@@ -1,0 +1,8 @@
+---
+title: '58 AGO de CREUP'
+date: Wed, 07 Dec 2016 11:35:10 +0000
+draft: false
+tags: ['AGO', 'Asamblea General Ordinaria', 'Colaboraciones', 'CREUP', 'CREUP', 'Eventos', 'Eventos externos', 'ULe', 'Universidad de León']
+---
+
+El presidente estuvo presente en la última AGO de CREUP (Coordinadora de Representantes de universidades públicas), la 58, en la cual se trataron temas como la gobernanza en la universidad y autonomía universitaria y sobre ciencia y política científica. Temas de gran importancia para la mejora de la universidad pública y de su funcionamiento, por tal que los estudiantes estén mejor representados y tengan mayor voz en todos aquellos asuntos que les afecta y aquellos que les preocupa. [![AGO CREUP](https://ceet.org.es/wp-content/uploads/2016/12/DSC_0503_firmada.jpg)](https://ceet.org.es/wp-content/uploads/2016/12/DSC_0503_firmada.jpg) El interés principal de esta junta directiva era asistir al CAS, la comisión de asuntos sectoriales. Se trata de una comisión que reúne a todas las sectoriales como la nuestra para discutir sobre aquellos temas que afectan a la representación generalista como en los MORE (máximo órgano de representantes de estudiantes) como a CREUP, pero desde una visión de las sectoriales. También es un espacio que las sectoriales tienen para traer la problemática de sus estudios y que CREUP les eche una mano y les de soporte. En este último CAS se han establecido varias líneas de trabajo que se expondrán en el próximo CAS en febrero. Por una parte, uno de los grupos de trabajo estará encabezado por el Presidente, Pol Àlvarez, referente a la subvención InJuve, por otra el grupo de registro de sectoriales al ministerio de interior por un miembro de la Comisión Asesora sobre Reglamentación, Daniel Martín.

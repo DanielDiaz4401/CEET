@@ -1,0 +1,10 @@
+---
+title: '#FomentemosLasTIC'
+date: Mon, 09 Dec 2019 12:22:19 +0000
+draft: false
+tags: ['#FomentemosLasTIC', '#FomentemosLasTIC', 'Amazon University eSports', 'Campaña de Navidad', 'Catálogo de juguetes', 'Catálogos de juguetes tecnológicos', 'Colaboración', 'Colaboraciones', 'Juguetes', 'Madres', 'Niñas', 'Niños', 'Padres', 'Tecnología', 'Vocación tecnológica']
+---
+
+\[flipbook pdf= "https://ceet.org.es/wp-content/uploads/2019/12/Catalogo-Navidad-2019.pdf"\] [Descargar Catálogo Fomentemos las TIC 2019](https://ceet.org.es/download/catalogo-juguetes-ceet-navidad-2019/)
+
+> Un año más se acercan unas fechas muy especiales en las que millones de niñas y niños de todo el mundo recogen, en una **carta**, todas sus ilusiones, deseos y peticiones. _En esas cartas hay más que juegos o películas, en esas cartas hay mundos que explorar, aventuras que vivir, lecciones que aprender_. Por estos motivos, en estas fiestas, el mejor regalo que se les puede hacer es el conocimiento. **El conocimiento** es el poder de comprender su presente y construir su futuro, el conocimiento es darles las herramientas para definir el mundo del mañana, que hoy está en sus manos, el conocimiento es, en definitiva, el valor de la ingeniería. Ya que esta es nuestra convicción, la de compartir conocimiento, otro año más traemos este catálogo, fruto del trabajo de muchas personas con la esperanza y la ilusión de que, todas las niñas y niños a los que pueda llegar, vean un sinfín de oportunidades donde elegir para aprender divirtiéndose. En éste catálogo se encontrarán juguetes que estimularán su **pensamiento crítico**, libros que requerirán su **creatividad** y su **ingenio**, juegos que incentivarán su **audacia** y les permitirán explorar numerosas posibilidades. Damos gracias de todo corazón a quienes año tras año trasladan esta felicidad, este conocimiento, a todos los niños y niñas del mundo y que, con su granito de arena, favorecen que otro año más [#FomentemosLasTIC](https://ceet.org.es/tag/fomentemoslastic/). FELICES FIESTAS.

@@ -1,0 +1,8 @@
+---
+title: 'La Junta Directiva participa en la XLV AGO de RITSI'
+date: Fri, 28 Oct 2016 15:32:16 +0000
+draft: false
+tags: ['AGO', 'Asamblea General Ordinaria', 'Colaboración', 'Colaboraciones', 'Eventos', 'Eventos externos', 'Junta Directiva', 'Presidencia', 'RITSI', 'RITSI']
+---
+
+Desde la presidencia del CEET se ha asistido a RITSI por invitación de la junta a su cuadragésimo quinta Asamblea General Ordinaria. El motivo de esta invitación era ayudar a nuestros compañeros TIC a resolver todas sus dudas y dar nuestro punto de vista sobre la regulación de la profesión, las atribuciones de las profesiones reguladas y los colegios. La presidencia estuvo trabajando con el grupo de trabajo sobre estudios y profesión, respondiendo preguntas, resolviendo dudas y guiando a los integrantes del grupo. La equiparación de sus estudios a las demás ingenierías es un punto muy importante, en cual están trabajando conjuntamente con los colegios profesionales y otras asociaciones, en el que tienen todo el apoyo por parte de la Junta Directiva del CEET. [![Apoyo de las presidencias de CEET y RITSI](https://ceet.org.es/wp-content/uploads/2016/10/WhatsApp-Image-2016-10-28-at-17.27.01-300x300.jpeg)](https://ceet.org.es/wp-content/uploads/2016/10/WhatsApp-Image-2016-10-28-at-17.27.01.jpeg) Desde la Junta Directiva de CEET agradecemos la invitación por parte de la junta directiva de RITSI, esperamos poder seguir trabajando conjuntamente para mejorar la relación y los estudios TIC. Pues estos son uno de los principales ejes de innovación y desarrollo para la sociedad actual y futura.

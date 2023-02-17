@@ -1,0 +1,10 @@
+---
+title: '#FomentemosLasTIC'
+date: Thu, 03 Dec 2020 14:47:05 +0000
+draft: false
+tags: ['#FomentemosLasTIC', '#FomentemosLasTIC', 'Amazon University eSports', 'Campaña de Navidad', 'Catálogo de juguetes', 'Catálogos de juguetes tecnológicos', 'Juguetes', 'Madres', 'Niñas', 'Niños', 'Padres', 'Tecnología', 'Vocación tecnológica']
+---
+
+[Descargar Catálogo Fomentemos Las TIC 2020](https://ceet.org.es/download/catalogo-juguetes-ceet-navidad-2020/) \[flipbook pdf= "https://ceet.org.es/wp-content/uploads/2020/12/CEET-Catálogo-Juguetes.pdf"\]
+
+> Llegamos ya a las últimas semanas del año y el ambiente festivo se nota más que nunca. Tenemos que reconocer que este año 2020 ha sido uno de los más peculiares y más ahora que se acercan estas fechas tan especiales, pero gracias al desarrollo tecnológico tenemos a nuestra mano un sinfín de herramientas que nos permiten comunicarnos en la distancia y sirven para acercarnos en esos momentos en los que queremos disfrutar de estas fechas con nuestros seres queridos. Un año más, el CEET lanza su catálogo de juguetes para que, como familiares o amistades, regaléis a los más jóvenes un preciado tesoro que ahora más que nunca deben valorar: la Tecnología y la Ingeniería. Dentro de este catálogo vais a poder encontrar una gran variedad de juguetes, gadgets, juegos de mesa e incluso libros que fomentan la **ciencia**, la **imaginación** y el **amor por lo tecnológico**. Porque es importante aprender, pero es mucho mejor hacerlo jugando. Estos juguetes son una forma de divertirse sin dejar de lado el desarrollo de capacidades como la **audacia**, la **creatividad**, el **ingenio**, la **lógica** y el **pensamiento crítico**. Esperemos disfrutéis estas fiestas lo máximo posible y que este catálogo os sea de gran ayuda. Cuidaos mucho y no queremos olvidarnos de daros las gracias otro año más por hacer posible que [#FomentemosLasTIC](tg://search_hashtag?hashtag=FomentemosLasTIC). FELICES FIESTAS Y PRÓSPERO 2021.
